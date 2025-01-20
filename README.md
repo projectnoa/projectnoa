@@ -8,4 +8,4 @@
   Dev Resources, Tools, and Insights for the Creators of Our Tomorrow.
   
   https://www.ajourneyforwisdom.com
-  Lifelong Learners, Smashing Self-Doubt and Shitty Mindsets.
+  Lifelong Learner, Smashing Self-Doubt and Shitty Mindsets.
